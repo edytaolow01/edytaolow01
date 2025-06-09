@@ -3,7 +3,6 @@
 - 🌱 I’m currently learning NLP
 - 💞️ I’m looking to collaborate on simple NLP projects (so far)
 - 📫 How to reach me: on Instagram: usmiechnijsb, e-mail: edyta.olow01@gmail.com
-- 😄 Pronouns: she
 - ⚡ Facts: I love animals, traveling and techno
 
 <!---
